@@ -15,7 +15,7 @@ Likes *sad blue moon girl*.
 
 Likes to spend my time on obscure websites and forums.
 
-Don't like mainstream media and pop culture as a whole.
+Doesn't like mainstream media and pop culture.
 
 Edgy boy who thinks he's better than anyone else.
 
