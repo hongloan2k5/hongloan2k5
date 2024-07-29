@@ -19,5 +19,5 @@ Doesn't like mainstream media and pop culture.
 
 Edgy boy who thinks he's better than anyone else.
 
-IDK, I just wanna a build a resume to get a job.  
+idk, I just wanna a build a resume to get a job.  
 Please give me money so I could buy more Robox.
